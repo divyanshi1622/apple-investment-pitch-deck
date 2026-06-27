@@ -1,3 +1,4 @@
+![Cover](cover.png)
 Apple Investment Pitch Deck
 
 Overview
