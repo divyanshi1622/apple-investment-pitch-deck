@@ -1,4 +1,4 @@
-![Cover](cover.png)
+![Cover](IMG_6269.jpeg)
 Apple Investment Pitch Deck
 
 Overview
